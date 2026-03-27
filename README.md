@@ -1,4 +1,4 @@
-## Hi there I'm Osaz 👋
+## Hi there, I'm Osaz 👋
 
 Product Design Lead by day, community builder always. I'm based in Lagos, Nigeria, and I spend my time at the intersection of design, technology, and people.
 
